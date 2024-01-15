@@ -86,7 +86,7 @@ INSTAGRAM: [https://www.instagram.com/khogiaitri.co](https://www.instagram.com/k
 
 TWITTER: [https://twitter.com/KhoGiaiTriCo](https://twitter.com/KhoGiaiTriCo)
 
-TELEGRAM: [https://t.me/khogiaitrico](https://t.me/khogiaitrico)
+TELEGRAM: [https://t.me/khogiaitri](https://t.me/khogiaitri)
 
 PINTEREST: [https://www.pinterest.com/khogiaitrico](https://www.pinterest.com/khogiaitrico)
 
