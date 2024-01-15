@@ -86,11 +86,11 @@ INSTAGRAM: [https://www.instagram.com/khogiaitri.co](https://www.instagram.com/k
 
 TWITTER: [https://twitter.com/KhoGiaiTriCo](https://twitter.com/KhoGiaiTriCo)
 
-TELEGRAM: [https://t.me/khogiaitri](https://t.me/khogiaitri)
+TELEGRAM: [https://t.me/khogiaitrico](https://t.me/khogiaitrico)
 
 PINTEREST: [https://www.pinterest.com/khogiaitrico](https://www.pinterest.com/khogiaitrico)
 
-REDDIT: [https://www.reddit.com/user/khogiaitrico](https://www.reddit.com/user/khogiaitrico)
+REDDIT: [https://www.reddit.com/user/khogiaitri](https://www.reddit.com/user/khogiaitri)
 
 # Phương châm của chúng tôi #
 <p>
